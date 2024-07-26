@@ -1,5 +1,5 @@
 - 👋 Olá, eu sou o Fernando
-- 👀 Estou interessado em física
+- 👀 Interessado em física, química, matemática, história e biologia
 - 😄 Pronomes: ele/dele
 - ⚡ Fun fact: O Número de Avogadro é 6,022 elevado a 23
 
